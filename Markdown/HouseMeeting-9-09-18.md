@@ -100,8 +100,6 @@ ALC:
       - ~Carl NO!~
       - CARL YES
 
-![Carl No](https://imgur.com/a1kwFz8 "Carl No")
-
   2. Amanda Lydick
       - 3rd year Mechanical Engineer
       - Likes to cook (and is really good at it)
