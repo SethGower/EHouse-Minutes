@@ -1,0 +1,176 @@
+# House meeting 9/09/18
+***Quorum is Met: 18/20*** 
+
+### Cabinet Announcements
+
+Leiah - President: Nothing
+Kel - VP: 
+
+- No comps: Forgot box
+- Don't talk behind people's backs
+- Off floors, let Kel know about evals
+- Eval Presentation next week or so, will be on discord
+- Don't play loud music in pool lounge with door open, if you can hear at end of hall, too loud. No loud music after quiet hours, there are people next door
+- Quote: "Knowledge does for the mind, what experience does for the soul"
+
+Bench - Treasurer: No announcements
+Seth - Secretary: 
+
+- Don't submit individual attendance
+- Here's how to do attendance
+- Seth can't do the projector....
+
+Aaron - Reslife: Thanks for coming to the event
+RA:
+
+- Roommate agreements
+
+Nick - Constitution:
+
+- Let's get happy: in 2014 the leader of Iran got prostate surgery. 
+- Get constitution signature pages to Me! You can't pass without them.
+
+Saty - Computer Chairman: 
+
+- AV receiver shit itself, proposing a budget for new one. 
+- Budget may not be used, just in case. 
+- AV receiver is the little black box that takes input to the projector and speaker! Fun!
+- I will do research on brand and models later. 
+- Vote passes: 14/18
+
+Hunter - Freshmen Rep:
+
+- going to make bottle run Tuesday night. Gonna make a run to Wegman's, if you are interested in learning, go to Hunter
+
+Hunter - House Improvements:
+
+- HIPAWMIP
+- We have budget for $800 for fire cabinet. I found one for $530, 30 Gals, plenty. Can we add two fire extinguishers to that order?
+- With them, it is still under budget. We don't have to spend money that isn't spent, I will not pocket it.
+- Vote passes 16/18
+
+DK for Kasey - PR: 
+
+- Stress relief in the VAX. Saturday at 8pm, watch _Love Actually_ and do fun stuff.
+
+Leiah - Recruitment:
+
+- Off floors, please get involved and get on mailing lists if not already. 
+- Fill out the contract on the Google forms. They are due Monday (9/10/18). They can be later, but swipe might not happen. 
+
+Kristy - Social:
+
+- My name is Kristy
+- Sunday 9/16 is Beach Day! Respond to Facebook post
+- Mud Tug: 9/22. Talk to me if you haven't. One spot open for teams. If you don't want to do it anymore because of other things like maker fair.
+- Darrien Lake 9/29. $20
+
+Trent - Project:
+
+- I'm Trent
+- 229 Days till Imagine.
+- Week before HM of Evals, must have project proposals (only leaders). 
+- Everyone that wants to pass evals must be on project
+
+ALC:
+
+- State fair went well
+- Resume review went well. Another one late September.
+- Kim's birthday next weekend. 
+- DESTLER CONCERT 5PM DOWNTOWN ROCHESTER! IT'S FREE. 9/15
+- Complaints:
+  
+  - Kel: Use kazoo more.
+  - Saty wraps his breakfast burrito wrong
+  - People were late to cabinet meeting
+  - Winter is coming
+  - Carl was on couch
+  - Too hot in VAX
+  - Seth took too long setting up presentation
+  - Waited for HM
+- GET TO KNOW YOUR ALUMNI
+  
+  1. Carl Burkhard
+      - 3rd Year Mechanical Engineer
+      - Eternal God Emperor 
+      - Former President
+      - Carries a wrench
+      - Loves rock climbing, running, broomball and Ultimate
+      - Husband to Michael Smith
+      - ~Carl NO!~
+      - CARL YES
+
+![Carl No](https://imgur.com/a1kwFz8 "Carl No")
+
+  2. Amanda Lydick
+      - 3rd year Mechanical Engineer
+      - Likes to cook (and is really good at it)
+      - Very Jewish
+      - Has the longest hair ever
+      - Can’t function without coffee
+      - Coffee puts her to sleep
+      - Her food can make you breathe fire
+
+  3. Ryan Volz
+      - 3rd year GDD/EE? 
+      - Lives in the same town as Taylor and Jeff 
+      - Eternal EHouse beanie
+      - Has gone to one concert
+      - On floor so much we thought he lived there
+      - Helped try to convert 7th floor into more EHouse
+      - Always smiling
+
+
+### General Announcements
+
+Leiah:
+  - Jerseys: Looking for vendor. Gonna have 2 designs. Look out for polls about them. $25-30
+Saty:
+  - EHouse water bottles gonna go on sale soon. Nalgene style, blue with EH logo.
+Carl:
+  - SPORTS: 
+    - Broomball tomorrow D1 division at 8pm. 
+    - Talk to me
+Nicc:
+  - SPORTS
+    - Ultimate: first game is Wednesday at 8pm. Meet on floor
+Hunter:
+  - Giant 3d printer budget and slideshow over discord
+Nicc:
+  - Human Hamster Wheel:
+    - First meeting went well. 
+    - Looking for more people. 
+Leiah:
+  - SPORTS
+    - Broomball, the worse team:
+    - We play Wednesday, but are on the waitlist. 
+    - Please join
+Flowers:
+  - Meditation: Weekly on Saturday
+
+Faith: 
+  - Chick Flick Night: _Spectacular Now_
+Trent:
+  - Spook
+Hunter:
+  - Spoof
+Saty:
+  - Theater is broken
+Kristy:
+  - SPORTS
+    - We have soccer, Thursday at 9pm. Please join!
+Ryan:
+  - Regal Cinemas watch _The Nun_ on Tuesday. LMK
+Kim:
+  - Let's watch idiots play Broomball on Monday
+Kel:
+  - Let's watch _A Bugs Life_ in my room.
+  - Space is limited, so be prepared for trials
+  - Thursday at 6
+
+### Nominations
+
+- Recruitment: Faith Nee
+  - Graciously Accepts
+- Recruitment: DK
+  - Respectfully Decline
