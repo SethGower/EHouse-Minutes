@@ -27,13 +27,13 @@ Computer Chairman - Saty:
 
 Constitution and Historian - Nicc:
 
-Freshmen Rep - Leiah:
+Freshmen Rep - Danny:
 
 House Improvements - Hunter:
 
 - HIPAWAMIP
 
-Public Relations - Kasey:
+Public Relations - Leiah:
 
 Recruitment - Faith:
 
