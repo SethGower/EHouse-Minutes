@@ -33,7 +33,7 @@ House Improvements - Hunter:
 
 - HIPAWAMIP
 
-Public Relations - Leiah:
+Public Relations - Jonathan:
 
 Recruitment - Faith:
 
